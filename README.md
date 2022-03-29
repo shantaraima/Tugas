@@ -1,2 +1,3 @@
 # Tugas-Algoritma
-Kumpulan tugas tugas Algoritma
+Made Shanta Raima Wijaya
+2108541028
