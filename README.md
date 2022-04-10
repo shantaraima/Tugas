@@ -1,2 +1,2 @@
-Made Shanta Raima Wijaya
-2108541028
+Nama : Made Shanta Raima Wijaya
+NIM : 2108541028
